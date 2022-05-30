@@ -16,8 +16,8 @@ Here are some ideas to get you started:
 Hello! I'm Alecyrus.
 
 @ Work:
-* Working for FYH Team 🕸️
-* Working as a core designer and engineer on [Thorn App](https://app.thorn.press)
+* Working for FYH & Mooncyan Team 🕸️ 
+* Working as a core designer and engineer on [THORN App](https://thorn.so)
 * Automating literally all the things 🤖
 
 Not @ Work: 🏃🏻‍♀️ - 🏸 - 🏊🏻 - 🏜 - 🌿
